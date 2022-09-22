@@ -1,1 +1,1 @@
-# CODECHEF-BEGINNERS---Solutions
+New codes every Friday!
